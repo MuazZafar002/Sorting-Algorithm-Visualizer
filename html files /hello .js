@@ -1,1 +1,0 @@
-mamda d da
